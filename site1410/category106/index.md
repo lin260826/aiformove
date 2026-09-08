@@ -1,11 +1,9 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-03 03:41:26
+更新时间：2026-09-08 03:46:04
 
-新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。
-
-- [新华MBA雷火小说网](https://www.xhmba.com/)
+新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。 https://www.xhmba.com
 
 ## 传奇小说 
 - [传奇 第1页](/site1410/category106/1.md)
@@ -180,6 +178,26 @@
 - [传奇 第170页](/site1410/category106/170.md)
 - [传奇 第171页](/site1410/category106/171.md)
 - [传奇 第172页](/site1410/category106/172.md)
+- [传奇 第173页](/site1410/category106/173.md)
+- [传奇 第174页](/site1410/category106/174.md)
+- [传奇 第175页](/site1410/category106/175.md)
+- [传奇 第176页](/site1410/category106/176.md)
+- [传奇 第177页](/site1410/category106/177.md)
+- [传奇 第178页](/site1410/category106/178.md)
+- [传奇 第179页](/site1410/category106/179.md)
+- [传奇 第180页](/site1410/category106/180.md)
+- [传奇 第181页](/site1410/category106/181.md)
+- [传奇 第182页](/site1410/category106/182.md)
+- [传奇 第183页](/site1410/category106/183.md)
+- [传奇 第184页](/site1410/category106/184.md)
+- [传奇 第185页](/site1410/category106/185.md)
+- [传奇 第186页](/site1410/category106/186.md)
+- [传奇 第187页](/site1410/category106/187.md)
+- [传奇 第188页](/site1410/category106/188.md)
+- [传奇 第189页](/site1410/category106/189.md)
+- [传奇 第190页](/site1410/category106/190.md)
+- [传奇 第191页](/site1410/category106/191.md)
+- [传奇 第192页](/site1410/category106/192.md)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1410/index.md)
